@@ -1,3 +1,10 @@
-Welcome to Intellipaat...
+Hi Folks
 
-I am Pooja, I will be your DevOps Instructor. 
+
+how u doing 
+
+
+be happy  guys
+
+
+enjoy the day.
